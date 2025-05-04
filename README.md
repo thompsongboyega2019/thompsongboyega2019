@@ -1,4 +1,4 @@
-👋 Hello, I'm Thompson Falowo 
+👋 Hello, I'm Thompson Falowo - 
 A Creative Tech Polymath | Front-End Engineer | Graphic Designer | WordPress Developer
 
 ---My mantras:
